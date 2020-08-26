@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on nothing boomer
 - 🤔 I’m looking for help with idk lol im just messing with this
 - 💬 Ask me about rickrolls
-- 📫 How to reach me: dsfdsf798@gmail.com
+- 📫 How to reach me: you dont
 - 😄 Pronouns: dsf
 - ⚡ Fun fact: GitHub needs to stfu on emails
 -->
