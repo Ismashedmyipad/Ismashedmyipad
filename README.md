@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: you dont
 - 😄 Pronouns: dsf
 - ⚡ Fun fact: GitHub needs to stfu on emails
--->
+--> i am fucking lazy lmao
